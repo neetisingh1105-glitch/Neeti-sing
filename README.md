@@ -1,5 +1,5 @@
 # 💫 About Me:
-Data Analytics Enthusiast  and Power BI  
+Data Analytics Enthusiast , Excel and Data Visulization 
 
 
 ## 🌐 Socials:
